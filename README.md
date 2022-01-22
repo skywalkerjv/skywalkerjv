@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @skywalkerjv
+- 👀 I’m interested in project management 
+- 🌱 I’m currently learning audio-visual teach but have also started learning about management consulting, I want to solve complex business problems. 
+- 💞️ I’m looking to collaborate on project management ideas which could benefit many industries.
+- 📫 You can reach out to me on LinkedIn - https://www.linkedin.com/in/jatinvasudeo/
